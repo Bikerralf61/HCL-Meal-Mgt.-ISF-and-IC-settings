@@ -15,8 +15,10 @@ Please also stay connected, and share experiences, with the DIY looper communiti
 
 *Disclaimer – Important to read and understand. - 
 Authors are no medical professionals but T1 diabetics (or parents of a T1D child) who report their -limited - understanding and experience, in an effort to contribute to a growing body of knowledge, and to facilitate development of patient centered solutions. 
-Nothing in this site is medical advice. Also, the loop is no medical product but only a toolset that many found usefulto improve their diabetes managementment. You take full responsibility to use it with caution, and on an informed basis. 
-Meanwhile, there are looping alternatives available as registered products with more or less manufacturer and medical support backing them up. Preferably use one of those if they offer all you really need, or if you find the DIY route too challenging   
+Nothing in this site is medical advice. Also, the loop is no medical product but only a toolset that many found useful to improve their diabetes managementment. You take full responsibility to use it with caution, and on an informed basis. 
+
+Meanwhile, there are looping alternatives available as registered medical products, with more or less manufacturer and medical support backing them up. Preferably use one of those if they offer all you really need, or if you find the DIY route too challenging   
+
 
 
 
