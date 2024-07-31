@@ -13,11 +13,9 @@ Never copy what others report to use, but investigate and adjust to **your** dat
 Stay connected with your doctor/medical team. (Even if not knowing much about your DIY loop, they should be valueable experts in setting a correct basal, and also valueable consultants in other issues). 
 Please also stay connected, and share experiences, with the DIY looper communities.
 
-*Disclaimer – Important to read and understand. - 
+**Disclaimer – Important to read and understand -** 
 Authors are no medical professionals but T1 diabetics (or parents of a T1D child) who report their -limited - understanding and experience, in an effort to contribute to a growing body of knowledge, to support proper use and further development of patient centered solutions. 
-
 Nothing in this site is medical advice. Also, the loop is no medical product, but only a toolset that many found useful to improve their diabetes management. You take full responsibility to use it with caution, and on an informed basis. 
-
 Meanwhile, there are looping alternatives available as registered medical products, with more or less manufacturer and medical support backing them up. Preferably use one of those if they offer all you really need, or if you find the DIY route too challenging   
 
 
